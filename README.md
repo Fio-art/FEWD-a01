@@ -18,6 +18,6 @@ Also, here's a quick list of other things I love do:
 * Sit at the beach or park :)
 
 Here's a picture of me:
-![Fio Hodgman](https://www.facebook.com/photo?fbid=10158195955966845&set=pcb.101581959560318454)
+![Fio Hodgman](https://scontent-lax3-2.xx.fbcdn.net/v/t1.6435-9/201146438_10158169746681845_52928254124072326_n.jpg?_nc_cat=101&ccb=1-7&_nc_sid=09cbfe&_nc_ohc=5KaS7QjBqvEAX_Xk3HC&_nc_ht=scontent-lax3-2.xx&oh=00_AfB6tkPmyimpC6if54hxA7Rc3QTtZ9SW2JTCL-O7COawAg&oe=6410C1CA)
 
 Some of my old work at mine _**will start updating it soon**_ [Behance Potfolio](https://www.behance.net/fiorella2408)
